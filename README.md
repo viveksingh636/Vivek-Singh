@@ -43,7 +43,7 @@ Aspiring Data Analyst | Final Year B.Com BDA
 ## 🔗 Connect With Me
 
 - LinkedIn: [Vivek Singh](https://www.linkedin.com/in/vivek-singh-59b550293)  
-- Email: *(your email here)*  
+- Email: viveksinghrajpurohit636@gmail.com 
 
 ---
 
